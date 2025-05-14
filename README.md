@@ -1,0 +1,1 @@
+# Applications_Of_The_ZIGP_Regression_Model
